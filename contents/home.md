@@ -8,7 +8,7 @@ He is currently an incoming Master's student in Intelligent Science and Technolo
 
 #### Contact
 
-Email: thrive309309@gmail.com
+Email: thrive309309 [at] gmail.com
 
 #### Education
 M.E. in Intelligent Science and Technology, Anhui Agricultural University, Starting 2026.\
