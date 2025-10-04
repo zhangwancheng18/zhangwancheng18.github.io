@@ -4,7 +4,7 @@
 
 He is currently a Fellow in the Department of Earth and Planetary Sciences (EPS) at Harvard University. -->
 
-He is currently an incoming Master's student in Intelligent Science and Technology (starting 2026), completing his undergraduate studies in Computer Science and Technology.
+He is currently pursuing a Bachelor’s degree in Computer Science and Technology at Anhui Agricultural University and has been recommended for admission to the Master’s program in Intelligent Science and Technology at China Agricultural University, starting in 2026.
 
 #### Contact
 
