@@ -22,4 +22,4 @@
 
 - Merit Student (AAU), 2025.
 
-- There-Prize Scholarship (AAU), 2025.
+- There-Prize Scholarship (AAU), 2024.
